@@ -3,6 +3,7 @@
 - Pontuação Maxima
 - Um elogio besta
 - Amor Paterno(no caso do Sergio)
+- Me surprenda💀💀💀
 
 ### Um integrante disse: "Medidas extremas podem ser tomadas se nao seguir nossas exigências"👀👀
 
