@@ -2,7 +2,7 @@
 ### Exigências do grupo:
 - Pontuação Maxima
 - Um elogio besta
-- Aceitação(o Walter sobrou e por isso fez com a gnt)
+- Aceitação(o Walter sobrou e por isso fez com a gnt(como ele falou no email dele))
 - Amor Paterno(no caso do Sergio)
 
 ### Um integrante disse: "Medidas extremas podem ser tomadas se nao seguir nossas exigências"👀👀
